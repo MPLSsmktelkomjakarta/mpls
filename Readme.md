@@ -89,8 +89,8 @@ Mentor            :  Maziyah Nurul Huda (kontak : <a href="https://wa.me/6285795
 Silahkan masuk <a href="https://zoom.us/" target="_blank">https://zoom.us/</a><br/>
 Meeting ID 816 8296 8386<br/>
 Passcode 462703<br/>
-<a href="https://zoom.us/" target="_blank">download background meeting</a>
+<a href="(https://user-images.githubusercontent.com/87171027/125063187-601d7380-e0d9-11eb-9f53-eac152ec4503.png)" target="_blank">download background meeting</a>
 
 # LINK ABSENSI HARIAN
-----------------------------link menyusul-----------------------------------<br/>
+-----------------link menyusul---------------<br/>
 link akan di update setiap hari
