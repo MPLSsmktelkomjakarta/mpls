@@ -3,7 +3,7 @@
 
 # BUKU PANDUAN
 Silahkan mengunduh buku panduan untuk informasi mendetail terkait kegiatan MPLS<br/>
-<a href="https://drive.google.com/file/d/1dCSEsQ40X2AvZ253hLaGgfyM1lPhyokY/view?usp=sharing" target="_blank">Klik disini untuk mengunduh buku panduan</a><br/>
+<a href="https://drive.google.com/file/d/1dCSEsQ40X2AvZ253hLaGgfyM1lPhyokY/view?usp=sharing" target="_blank">Klik disini untuk mengunduh buku panduan</a>br/)
 
 # PEMBAGIAN KELOMPOK
 NADASELA
