@@ -1,5 +1,6 @@
-<center> <h2> ### Selamat datang di pusat informasi MASA PENGENALAN LINKUNGAN SEKOLAH </h2> </center>
-<center> <h2> ### SMK TELKOM JAKARTA ANGKATAN XXX </h2> </center>
+#MASA PENGENALAN LINKUNGAN SEKOLAH
+<center> <h2> Selamat datang di pusat informasi MPLS </h2> </center>
+<center> <h2> SMK TELKOM JAKARTA ANGKATAN XXX </h2> </center>
 
 # BUKU PANDUAN
 Silahkan mengunduh buku panduan untuk informasi mendetail terkait kegiatan MPLS<br/>
