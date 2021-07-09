@@ -11,13 +11,13 @@ Silahkan mengunduh buku panduan untuk informasi mendetail terkait kegiatan MPLS<
 Guru Pembimbing   : Pak Bayu (kontak : <a href="https://wa.me/6285641138260" target="_blank">085641138260</a>)<br/>
 Senior Pendamping : Meliana (kontak : <a href="https://wa.me/6281220158979" target="_blank">081220158979</a>)<br/>
 Mentor            : Dilla Ananda Wahyuningsih (kontak : <a href="https://wa.me/6281380694489" target="_blank">081380694489</a>)<br/>
-<a href="https://chat.whatsapp.com/Gcb2QCkHYMsEYmpwNr9iAk" target="_blank">Klik disini untuk join grup whatsapp kelompok</a>)<br/>
+<a href="https://chat.whatsapp.com/Gcb2QCkHYMsEYmpwNr9iAk" target="_blank">Klik disini untuk join grup whatsapp kelompok</a><br/>
 
 ![Japati_2](https://user-images.githubusercontent.com/87171027/125049398-22b1e980-e0cb-11eb-9433-2a87554aebc7.png)
 Guru Pembimbing   : Bu Deti (kontak : <a href="https://wa.me/6285782254591" target="_blank">085782254591</a>)<br/>
 Senior Pendamping : Puspa Indah Lestari	 (kontak : <a href="https://wa.me/6285215109624" target="_blank">085215109624</a>)<br/>
 Mentor            : Ega Alfarabi (kontak : <a href="https://wa.me/6281212848626" target="_blank">081212848626</a>)<br/>
-<a href="https://chat.whatsapp.com/DFZfzcEndktBHVDQHGlSmW" target="_blank">Klik disini untuk join grup whatsapp kelompok</a>)<br/>
+<a href="https://chat.whatsapp.com/DFZfzcEndktBHVDQHGlSmW" target="_blank">Klik disini untuk join grup whatsapp kelompok</a><br/>
 
 ![Pasopati_2](https://user-images.githubusercontent.com/87171027/125049422-27769d80-e0cb-11eb-8986-be0df7455f43.png)
 Guru Pembimbing   : Bu Dhella Ismira Anindita (kontak : <a href="https://wa.me/6281280528502" target="_blank">081280528502</a>)<br/>
