@@ -1,4 +1,3 @@
-#MASA PENGENALAN LINKUNGAN SEKOLAH
 <center> <h2> Selamat datang di pusat informasi MPLS </h2> </center>
 <center> <h2> SMK TELKOM JAKARTA ANGKATAN XXX </h2> </center>
 
@@ -7,7 +6,7 @@ Silahkan mengunduh buku panduan untuk informasi mendetail terkait kegiatan MPLS<
 <a href="https://drive.google.com/file/d/1dCSEsQ40X2AvZ253hLaGgfyM1lPhyokY/view?usp=sharing" target="_blank">Klik disini untuk mengunduh buku panduan</a><br/>
 
 # PEMBAGIAN KELOMPOK
-![Nadasela_2]
+
 Guru Pembimbing   : Pak Bayu (kontak : <a href="https://wa.me/6285641138260" target="_blank">085641138260</a>)<br/>
 Senior Pendamping : Meliana (kontak : <a href="https://wa.me/6281220158979" target="_blank">081220158979</a>)<br/>
 Mentor            : Dilla Ananda Wahyuningsih (kontak : <a href="https://wa.me/6281380694489" target="_blank">081380694489</a>)<br/>
