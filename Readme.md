@@ -45,7 +45,7 @@ Mentor            : Ibnu Rasyid  (kontak : <a href="https://wa.me/6281293412761"
 
 ![Receiver_2-1](https://user-images.githubusercontent.com/87171027/125162503-6af80700-e1b2-11eb-8093-514148c82f6c.png)
 Guru Pembimbing   :  Pak Ihsan Abdul Akbar	 (kontak : <a href="https://wa.me/62895701672299" target="_blank">0895701672299</a>)<br/>
-Senior Pendamping : Kautsar Putra Ramadhan (kontak : <a href="https://wa.me/62895701672299" target="_blank">081319498279 </a>)<br/>
+Senior Pendamping : Kautsar Putra Ramadhan (kontak : <a href="https://wa.me/62895701672299" target="_blank">08895701672299</a>)<br/>
 Mentor            : Hergy Febrian Yahya  (kontak : <a href="https://wa.me/6283876763863" target="_blank">083876763863</a>)<br/>
 <a href="https://chat.whatsapp.com/JOKrbGOARLNHpuBor15Qkd " target="_blank">Klik disini untuk join grup whatsapp kelompok</a><br/>
 
@@ -57,7 +57,7 @@ Mentor            : Imelda Damayanti (kontak : <a href="https://wa.me/6281385944
 
 ![Seluler-1_2](https://user-images.githubusercontent.com/87171027/125049412-25acda00-e0cb-11eb-8efe-e37048884c32.png)
 Guru Pembimbing   : Bu Nurul Aini (kontak : <a href="https://wa.me/6281297568442" target="_blank">081297568442</a>)<br/>
-Senior Pendamping : Nabeel Muhammad Diaz (kontak : <a href="https://wa.me/6281290436289" target="_blank">081212678789</a>)<br/>
+Senior Pendamping : Nabeel Muhammad Diaz (kontak : <a href="https://wa.me/6281290436289" target="_blank">081290436289</a>)<br/>
 Mentor            :  Adilla Khairunnisa Ardyputri (kontak : <a href="https://wa.me/628111215466" target="_blank">08111215466</a>)<br/>
 <a href="https://chat.whatsapp.com/If6Vc4PHgcb5b8EDZaLIG3" target="_blank">Klik disini untuk join grup whatsapp kelompok</a><br/>		
 	
