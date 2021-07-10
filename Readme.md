@@ -43,7 +43,7 @@ Senior Pendamping : Citra Anggraini (kontak : <a href="https://wa.me/62813194982
 Mentor            : Ibnu Rasyid  (kontak : <a href="https://wa.me/6281293412761" target="_blank">081293412761</a>)<br/>
 <a href="https://chat.whatsapp.com/KpCOSOzDO6pIvEn9ov4RTO " target="_blank">Klik disini untuk join grup whatsapp kelompok</a><br/>
 
-![Receiver_2](https://user-images.githubusercontent.com/87171027/125049443-2d6c7e80-e0cb-11eb-91ce-8d8527786b10.png)
+![Receiver_2-1](https://user-images.githubusercontent.com/87171027/125162503-6af80700-e1b2-11eb-8093-514148c82f6c.png)
 Guru Pembimbing   :  Pak Ihsan Abdul Akbar	 (kontak : <a href="https://wa.me/62895701672299" target="_blank">0895701672299</a>)<br/>
 Senior Pendamping : Kautsar Putra Ramadhan (kontak : <a href="https://wa.me/62895701672299" target="_blank">081319498279 </a>)<br/>
 Mentor            : Hergy Febrian Yahya  (kontak : <a href="https://wa.me/6283876763863" target="_blank">083876763863</a>)<br/>
@@ -79,7 +79,7 @@ Senior Pendamping : Fariq Zakky Pratama (kontak : <a href="https://wa.me/6281213
 Mentor           :Alicia Chandra (kontak : <a href="https://wa.me/6285810902728" target="_blank">085810902728</a>)<br/>
 <a href="https://chat.whatsapp.com/JXK2u9gfv4KHQCcE9xang5 " target="_blank">Klik disini untuk join grup whatsapp kelompok</a><br/>
 	
-![Fiber_2](https://user-images.githubusercontent.com/87171027/125049404-23e31680-e0cb-11eb-9382-af19337f8962.png)
+![Fiber_2-1](https://user-images.githubusercontent.com/87171027/125162505-6d5a6100-e1b2-11eb-9ee6-f116cd5a019e.png)
 Guru Pembimbing   : Bu Tyas Marizka Sudrajat (kontak : <a href="https://wa.me/6289601754590" target="_blank">089601754590</a>)<br/>
 Senior Pendamping : Arya Putra Maulana (kontak : <a href="https://wa.me/6281295392026" target="_blank">081295392026</a>)<br/>
 Mentor            :  Maziyah Nurul Huda (kontak : <a href="https://wa.me/6285795972953" target="_blank">085795972953</a>)<br/>
