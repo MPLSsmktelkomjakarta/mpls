@@ -92,5 +92,5 @@ Passcode 462703<br/>
 <a href="https://gdurl.com/Mui2/download" target="_blank">download virtual background</a><br/>
 
 # LINK ABSENSI HARIAN
------------------link menyusul---------------<br/>
-link akan di update setiap hari
+<a href="https://forms.gle/Zecz669q6RPYHUum8" target="_blank">https://forms.gle/Zecz669q6RPYHUum8</a><br/>
+link akan di update setiap hari ditutup pada pukul 11.00 setiap harinya
